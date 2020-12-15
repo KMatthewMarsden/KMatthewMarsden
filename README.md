@@ -15,5 +15,6 @@ Also scary dashboards that make you want to /quit earth.
 - 🌱 I’m currently learning to save the planet one game at a time
 - 👯 I’m looking to collaborate on any network/game related projects
 - 💬 Tell me about your general ideas for improving social justice in the world 
+- 💬 Ask me about kettles
 - 📫 How to reach me: KMM#1661 
 - 😄 Pronouns: he/him
