@@ -17,4 +17,4 @@ Also scary dashboards that make you want to /quit earth.
 - 💬 Tell me about your general ideas for improving social justice in the world 
 - 💬 Ask me about kettles
 - 📫 How to reach me: KMM#1661 
-- 😄 Pronouns: he/him
+- 😄 Pronouns: they/them
